@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PrinceThakur07
 - 👀 I’m interested in $
-- 🌱 I’m currently somthing new
+- 🌱 I’m currently something new
 - 💞️ I’m looking to collaborate on some people
 
 
